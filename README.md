@@ -1,4 +1,4 @@
-## Cute Birthday Cake App I made for my boyfriend : ) 
+## Cute Birthday Cake App I made : ) 
 
 ## Here are the steps to use this
 
